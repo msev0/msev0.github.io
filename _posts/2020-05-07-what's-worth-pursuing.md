@@ -12,3 +12,9 @@ The most interesting areas & people to me right now:
 3. Crypto for finance -> Devs who work on the edge of crypto
 
 They are all winners at life.
+
+---
+
+1. Line art; large print sketches, tattoos and stickers, clothing and bags
+2. Understanding the web; automation, parsing and structuring data
+3. Why are certain assets dramatically undervalued until 2-3 years later?

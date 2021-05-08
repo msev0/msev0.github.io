@@ -11,7 +11,9 @@ The most interesting areas & people to me right now:
 2. Investments, markets, valuation of public and private companies -> VCs, hedge fund managers, analysts and quants
 3. Crypto for finance -> Devs who work on the edge of crypto
 
-They are all winners at life.
+They are all winners.
+
+Importantly, if I want to be a winner as well, I need to be in a community. I need to be public. I need to share.
 
 ---
 

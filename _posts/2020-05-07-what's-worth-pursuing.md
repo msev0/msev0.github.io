@@ -1,5 +1,3 @@
-# What's Worth Pursuing
-
 Eventually we all have enough money to not really worry about money. Eventually we have families, loved ones, happiness and health.
 What do we do after that?
 I want to learn and participate in the things that I find fascinating.

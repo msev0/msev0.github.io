@@ -17,6 +17,6 @@ Importantly, if I want to be a winner as well, I need to be in a community. I ne
 
 ---
 
-1. Line art; large print sketches, tattoos and stickers, clothing and bags
+1. Line art; Generated art that people actually enjoy; Original copy prints
 2. Understanding the web; automation, parsing and structuring data
 3. Why are certain assets dramatically undervalued until 2-3 years later?
